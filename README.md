@@ -13,3 +13,5 @@ Singbox订阅：
 <br />
 https://vocavalley.filegear-sg.me/haru_jpg?singbox
 <br />
+<br />
+凭什么只有官科可以上外网，民科就不可以？抵制官科从你我他做起！
