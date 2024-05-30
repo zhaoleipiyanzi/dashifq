@@ -16,3 +16,8 @@ https://vocavalley.filegear-sg.me/haru_jpg?singbox
 <br />
 <br />
 凭什么只有官科可以上外网，民科就不可以？抵制官科从你我他做起！民科是时候该站起来了！
+<br />
+<br />
+记得关注大市唱谢谢喵！
+<br />
+https://dashichang.work
